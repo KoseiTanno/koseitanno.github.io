@@ -1,1 +1,1 @@
-# KoseiTanno.github.io
+# koseitanno.github.io
